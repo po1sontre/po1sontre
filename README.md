@@ -1,1 +1,1 @@
-too lazy for now buy hai im po1sontre
+too lazy for now but hai im po1sontre
